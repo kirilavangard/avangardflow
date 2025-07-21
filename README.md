@@ -1,4 +1,4 @@
-# avangardflow
+# avangardflow (сносер тг )
 ну сносер (проверял только на тгк )
 можете узнать больше в тгк https://t.me/avangardnaychit 
 либо у меня @KirilMachine 
